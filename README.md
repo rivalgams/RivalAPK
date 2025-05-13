@@ -1,1 +1,1 @@
-hi
+RivalAPK Loaded
